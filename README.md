@@ -1,4 +1,4 @@
-# priyadharshininandakumar-
+# priyadharshininandakumar
 ## 👩🏻‍💻 About Me
 
 Hello! I'm Priyadharshini, a Computer Science and Engineering student at Saveetha Engineering College, Tamil Nadu, India.
